@@ -1,1 +1,0 @@
-# um-charlotte-site
